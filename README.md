@@ -1,8 +1,8 @@
 ## Hi. I'm Don.
 
-I'm always learning. Expanding my the breadth of my knowledge creates more ideas (combinatorics), effectively applying insight from different domains in a manner than may not be obvious, e.g. What does James Baldwin have to do with organizational behavior? What does Archimedes tell me about philanthropy? What does Metcalfe tell me about learning? What does network architecture tell me about human communities?
+I'm always learning. Expanding the breadth of my knowledge creates more ideas (combinatorics) as my mind applies insight from different domains in a manner than may not be obvious. That's just how I work. I ask questions and I may look for connections even when they don't exist - or at least they are not obvious. What does James Baldwin have to do with organizational behavior? What does Archimedes tell me about philanthropy? What does Metcalfe tell me about learning? What does network architecture tell me about human communities?
 
-Everything I do must be grounded in core principles...many of which are clearly reflected in the Gettysburg address. I also aspire. I aspire to operate at a level of self-actualization. This sounds very philosophical but it is not. It is basic, just like me.
+Everything I do must be grounded in core principles...some of the most important are clearly articulated in the Gettysburg address. I also aspire. I aspire to maximize the amount of time I'm able to dedicate on self-actualization. This sounds very philosophical but it is not. It is basic, just like me.
 
 My operating model is based on a strong pragmatic foundation. This foundation allows to to build gradually, layer upon layer. It is layering and connections which give me ideas and a perspective to create things which may appear unique or innovative but they are more likely extrapolation and chaos.
 
